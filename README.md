@@ -1,0 +1,1 @@
+entry test questions with answers for (SCTP) Advanced Professional Certificate in Data Science & AI (Part-Time) (Synchronous and Asynchronous E-Learning) - Cohort 4 , scheduled to be held from 10 January 2026 to 6 June 2026
